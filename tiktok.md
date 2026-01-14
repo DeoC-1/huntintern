@@ -13,8 +13,6 @@
 ### 6. [Machine Learning Engineer Intern - TikTok Search Team - 2026 Start (PhD)](https://lifeattiktok.com/search/7557122323507349778)
 
 
-$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$$
-
 ### 7. [(General Hire) Research Scientist Intern (Monetization Technology) - 2026 Start (PhD)](https://lifeattiktok.com/search/7559026733786548488) 
 
 ### 8. [Research Scientist Intern- (Trust and Safety - CV/NLP/Multimodal LLM) - 2026 Start(PhD)](https://lifeattiktok.com/search/7527585101065652498)
